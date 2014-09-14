@@ -1,4 +1,4 @@
-### Tiramitsu
+### Tiramisu
 
 #### Ingrédients
 - 3 oeufs  
