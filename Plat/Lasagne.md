@@ -38,7 +38,7 @@ Pâtes
 Bechamelle  
 Sauce tomate  
 Viande  
-/*ce qui reste*/  
+//ce qui reste  
 Pates  
 Bechamelle  
 Fromage râpé
