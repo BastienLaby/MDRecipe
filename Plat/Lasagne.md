@@ -22,8 +22,7 @@ Un peu de tomate concentré
 Mettre de l'eau et laisser à feu doux
 Faire revenir la viande(viance haché, chair à saussice) à la poelle  
     
-**Faire de la bechamelle**
-Fondre du beurre, puis de la farine. Mélanger puis mettre du lait. Mélanger jusqu'à ce que ça epaississe.  
+**Faire de la bechamelle** : Fondre du beurre, puis de la farine. Mélanger puis mettre du lait. Mélanger jusqu'à ce que ça epaississe.  
     
 #### Dans le plat
 Bechamelle  
