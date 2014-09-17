@@ -11,4 +11,4 @@
 
 #### Préparation
 Mélanger tout les ingrédients, puis rajouter les pommes coupées en petits morceaux. Mélanger le tout à nouveau.  
-Mettre dans un moule beurré et cuire pendant 40 à 50 min à 160°C. 
+Mettre dans un moule beurré et cuire pendant 40 à 50 min à 170/180°C.
